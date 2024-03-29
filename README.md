@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CodyJKeithWebb
+- 👀 I’m interested in Basketball, Gaming, and Coding
+- 🌱 I’m currently learning Information Technology (Diploma)
+- 💞️ I’m looking to collaborate on Anything! Open to learning!
+- 📫 How to reach me codyjkeithwebb@gmail.com
